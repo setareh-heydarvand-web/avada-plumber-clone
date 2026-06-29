@@ -28,8 +28,8 @@ Project available through GitHub Pages.
 
 📧 Email : setareheydarvand@gmail.com
 
-💼 LinkedIn : setare heydarvand
+💼 LinkedIn : https://www.linkedin.com/in/setare-heydarvand-4769a1414?utm_source=share_via&utm_content=profile&utm_medium=member_ios
 
-🐙 GitHub : seatre-heydarvand-web
+🐙 GitHub : https://github.com/setareh-heydarvand-web
 
-📷 Instagram : setareheydarvand_web
+📷 Instagram : https://www.instagram.com/setareheydarvand_web?igsh=MTdqaThkN3BqN2N0bw%3D%3D&utm_source=qr
